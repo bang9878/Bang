@@ -1,1 +1,1 @@
-# Bang
+# Bang Hi!
